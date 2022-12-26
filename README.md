@@ -1,1 +1,1 @@
-# Deneme
+# Beni oku veya Okuma teşekkürler. 
